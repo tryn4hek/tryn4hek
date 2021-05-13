@@ -1,4 +1,4 @@
-<p>dih jadi orang kepo amat, ngapain buka2 profile gw?<p>
+<p>dih jadi orang kepo amat, ngapain buka2 profile ane?<p>
 
 <!---
 tryn4hek/tryn4hek is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
